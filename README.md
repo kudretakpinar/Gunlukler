@@ -1,0 +1,2 @@
+# Gunlukler
+Günlük tutmaya başlıyorum
